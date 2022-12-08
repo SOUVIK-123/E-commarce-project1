@@ -1,1 +1,1 @@
-# E-commarce-project done by SOUVIK and Swarnadeep
+# E-commarce-project done by SOUVIK and Swarnadweep
